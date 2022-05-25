@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning c and some knowlege on linux.
 - 💞️ I’m looking to meeting many excellent people and communicate with them.
 
-
+ooooo~~~~
